@@ -6,4 +6,4 @@ https://docs.google.com/uc?export=download&id=1I400U6fRUDOyC2Z78B-5NkJjbQeZClLT
 
 Link del PDF de Interpretacion del Trabajo: https://docs.google.com/document/d/1vbq6hr83BMDNrC7HtaNSWi8dCe-y_HNioEneVaonPbI/edit?usp=sharing
 
-Link del Video Explicativo: https://youtu.be/66mYwVN15Q0
+Link del Video Expositorio: https://youtu.be/66mYwVN15Q0
